@@ -1,4 +1,4 @@
-One of the devs of the Mod of all time :shocked:
+probably studpi im not sure
 
 <!---
 MaybeElouise/MaybeElouise is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
